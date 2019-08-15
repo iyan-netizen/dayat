@@ -1,0 +1,2 @@
+# dayat
+manusia biasa
